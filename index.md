@@ -13,6 +13,7 @@
 - Developed and executed an inclusive and socially just marketing campaign for Groups, resulting in a 35% increase in participation.
 - Provided essential support for all-hall initiatives, contributing to an increase in event attendance and participant satisfaction.
 - Oversaw and budgeted the Universities funding given to the organization each semester
+  
 ---
 
 ### Diversity equity and Inclusion Committee: 2023 - present
