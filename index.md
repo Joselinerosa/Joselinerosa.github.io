@@ -9,6 +9,10 @@
 ### CLA Ambassador 2023 : 2023 - present
 #### Organized events as a University Ambassador for potential students, managing logistics and ensuring smooth execution.
 #### Hosted panels for current students, offering insights on university life and academic/career paths in an engaging manner.
+### Accomplishments
+#### Developed and executed an inclusive and socially just marketing campaign for Groups, resulting in a 35% increase in participation.
+#### Provided essential support for all-hall initiatives, contributing to an increase in event attendance and participant satisfaction.
+#### Oversaw and budgeted the Universities funding given to the organization each semester
 ---
 
 ### Diversity equity and Inclusion Committee : 2023 - present
