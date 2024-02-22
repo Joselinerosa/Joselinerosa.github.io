@@ -7,17 +7,17 @@
 ## Leadership Experience and Activities 
 
 ### CLA Ambassador: 2023 - present
-#### Organized events as a University Ambassador for potential students, managing logistics and ensuring smooth execution.
-#### Hosted panels for current students, offering insights on university life and academic/career paths in an engaging manner.
+ - Organized events as a University Ambassador for potential students, managing logistics and ensuring smooth execution.
+ - Hosted panels for current students, offering insights on university life and academic/career paths in an engaging manner.
 ### Accomplishments
-#### Developed and executed an inclusive and socially just marketing campaign for Groups, resulting in a 35% increase in participation.
-#### Provided essential support for all-hall initiatives, contributing to an increase in event attendance and participant satisfaction.
-#### Oversaw and budgeted the Universities funding given to the organization each semester
+- Developed and executed an inclusive and socially just marketing campaign for Groups, resulting in a 35% increase in participation.
+- Provided essential support for all-hall initiatives, contributing to an increase in event attendance and participant satisfaction.
+- Oversaw and budgeted the Universities funding given to the organization each semester
 ---
 
 ### Diversity equity and Inclusion Committee: 2023 - present
-####  Actively contribute as a member of the Diversity, Equity, and Inclusion Committee on campus, collaborating with peers to promote a more inclusive and welcoming environment.
-#### Organize events and initiatives aimed at fostering diversity and equity within the university community, working towards creating a more equitable and supportive campus environment for al.
+-  Actively contribute as a member of the Diversity, Equity, and Inclusion Committee on campus, collaborating with peers to promote a more inclusive and welcoming environment.
+- Organize events and initiatives aimed at fostering diversity and equity within the university community, working towards creating a more equitable and supportive campus environment for al.
 
 ---
 
