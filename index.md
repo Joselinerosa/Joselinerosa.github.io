@@ -6,6 +6,7 @@
 
 ## Clubs and activities 
 
+### CLA Ambassador 2023 - present
 ---
 
 ### Teaching Assistant - University of Minnesota
