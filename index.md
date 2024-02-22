@@ -6,13 +6,14 @@
 
 ## Leadership Experience and Activities 
 
-### CLA Ambassador 2023 - present
+### CLA Ambassador 2023 : 2023 - present
 #### Organized events as a University Ambassador for potential students, managing logistics and ensuring smooth execution.
- Hosted panels for current students, offering insights on university life and academic/career paths in an engaging manner.
+#### Hosted panels for current students, offering insights on university life and academic/career paths in an engaging manner.
 ---
 
-### Teaching Assistant - University of Minnesota
-
+### Diversity equity and Inclusion Committee : 2023 - present
+####  Actively contribute as a member of the Diversity, Equity, and Inclusion Committee on campus, collaborating with peers to promote a more inclusive and welcoming environment.
+#### Organize events and initiatives aimed at fostering diversity and equity within the university community, working towards creating a more equitable and supportive campus environment for al.
 
 ---
 
