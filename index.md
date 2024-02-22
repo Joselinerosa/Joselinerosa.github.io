@@ -4,9 +4,11 @@
 
 ---
 
-## Clubs and activities 
+## Leadership Experience and Activities 
 
 ### CLA Ambassador 2023 - present
+#### Organized events as a University Ambassador for potential students, managing logistics and ensuring smooth execution.
+ Hosted panels for current students, offering insights on university life and academic/career paths in an engaging manner.
 ---
 
 ### Teaching Assistant - University of Minnesota
