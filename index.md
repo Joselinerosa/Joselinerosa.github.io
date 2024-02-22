@@ -1,6 +1,6 @@
 
 ## Work Experience
-### Software Engineering Intern - KFI Engineers
+### Communications and Engagement Intern - University of Minnesota
 
 ---
 
