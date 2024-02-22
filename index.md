@@ -4,7 +4,7 @@
 
 ---
 
-### Research Assistant - University of Minnesota
+## Clubs and activities 
 
 ---
 
