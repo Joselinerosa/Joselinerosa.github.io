@@ -19,9 +19,11 @@
 
 ### Diversity equity and Inclusion Committee: 2023 - present
 -  Actively contribute as a member of the Diversity, Equity, and Inclusion Committee on campus, collaborating with peers to promote a more inclusive and welcoming environment.
-- Organize events and initiatives aimed at fostering diversity and equity within the university community, working towards creating a more equitable and supportive campus environment for al.
+- Organize events and initiatives aimed at fostering diversity and equity within the university community, working towards creating a more equitable and supportive campus environment for all.
 
-### Skills
+
+
+## Skills
 - Excellent communication and interpersonal abilities
 - Strong organizational skills
 - Proficient in marketing principles
