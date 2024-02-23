@@ -29,6 +29,7 @@
 - Proficient in marketing principles
 - Event planning and coordination
 - Fluent in Spanish
+- Object Oriented Languages
 
 ## Languages
 - Python
